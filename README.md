@@ -7,3 +7,5 @@ Download for free on: https://www.pling.com/p/2261433/
 # Greenify
 # Android 13 Greenify
 # Android 13 Greenify works 
+# Android 13 Greenify Mod
+# Greenify Mod
